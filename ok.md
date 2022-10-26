@@ -1,0 +1,1 @@
+Aujourd'hui j'ai surtout appris à comment monter un pc (j'avais des bases dans ce qui était hardware), j'avais des lacunes au nv des branchements sinon le tp s'est bien passé et hâte de continuer le labo :) et le cours au départ était bien.
